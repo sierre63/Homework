@@ -11,4 +11,4 @@
 3. Компьютерные и консольные игры
 4. Чтение
 
-![](https://vk.com/photo47189394_456240671?rev=1)
+![](https://revistadiners.com.co/wp-content/uploads/2017/03/portada_deadpool_800x669.jpg)
