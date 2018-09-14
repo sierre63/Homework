@@ -11,4 +11,4 @@
 3. Компьютерные и консольные игры
 4. Чтение
 
-![](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmetrosource.com%2Fwp-content%2Fuploads%2F2018%2F02%2FDeadpool-2.png&imgrefurl=https%3A%2F%2Fmetrosource.com%2Fa-flirty-and-dirty-trailer-for-deadpool-2-has-fanboys-swooning%2F&docid=-kOVnF9w-G7JwM&tbnid=jk9ourC8a2E8KM%3A&vet=1&w=864&h=520&client=safari&bih=763&biw=1440&ved=2ahUKEwiV5-ad_LrdAhUKEywKHXCJCEQQxiAoA3oECAEQFw&iact=c&ictx=1)
+![](https://vk.com/photo47189394_456240671?rev=1)
