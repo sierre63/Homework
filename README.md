@@ -1,4 +1,4 @@
-# Homework
+# Python_dh_hw
 Привет, меня зовут Маша!
 
 Я студентка 4 курса ОП [История](https://www.hse.ru/ba/hist/)
